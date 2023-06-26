@@ -6,7 +6,7 @@ Saying “gun” where anyone in the general public can overhear is dangerous fo
 
 Saying “gun” is an easy mistake to make; for many people it’s a habit. It’s a habit that we encourage (and remind and remind and remind) people to break. 
 
-This matters when speaking online as well as IRL, because:
+This matters when speaking online as well as IRL because:
 
 * Words are habits. Some people benefit from practicing using one word over another by consistently saying that word. Even if *you* can easily use different words in different contexts, you’re setting an example. We have young users. This is especially important for us since our tagging-sport hobby uniquely often takes place in otherwise crowded public spaces (parks, schools, etc.).
 
