@@ -4,7 +4,7 @@ To get straight to the point: **the word “gun” can create dangerous misunder
 
 Saying “gun” where anyone in the general public can overhear is dangerous for the same reason as walking around with a camo-painted Longshot: someone may think that there’s a firearms-related threat. What’s obviously a blaster to a hobbyist is not obvious to Joe Public, and a frightened Joe Public will be far more likely to call the police than to look closer and see their mistake. 
 
-Saying “gun” is an easy mistake to make; for many people it’s a habit. It’s a habit that we to encourage (and remind and remind and remind) people to break. 
+Saying “gun” is an easy mistake to make; for many people it’s a habit. It’s a habit that we encourage (and remind and remind and remind) people to break. 
 
 This matters when speaking online as well as IRL, because:
 
